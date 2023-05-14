@@ -14,4 +14,4 @@
 ---
 
 ![image](https://user-images.githubusercontent.com/91722200/208110838-253b05d4-6699-4408-8bb8-6992ce75bfc2.png)  
-Copyright &copy; Hongofestival executive committee public relation department 2023. All rights reserved.
+Copyright &copy; Hongofestival executive committee 2023. All rights reserved.
