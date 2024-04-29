@@ -15,4 +15,4 @@
 
 ![image](https://github.com/HECTD/.github/assets/91722200/a4b4d629-0a3f-4177-a81e-1426f70252b5)
 
-Copyright &copy; Hongofestival executive committee 2024. All rights reserved.
+Copyright &copy; Hongo Festival executive committee 2024. All rights reserved.
